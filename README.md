@@ -104,3 +104,4 @@ Trading cryptocurrencies carries inherent risks. Please ensure you fully underst
 
 ## 📞 Contact
 
+Telegram: [@g0drlc](https://t.me/g0drlc)
